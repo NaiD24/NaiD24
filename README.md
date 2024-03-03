@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NaiD24
+- im very new in this domain
+- and i'm french
